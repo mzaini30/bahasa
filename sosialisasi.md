@@ -106,13 +106,15 @@
 
 # Kosakata
 
-![image](https://gist.github.com/user-attachments/assets/ae3bbee8-0a8b-4399-ba73-c7686fc2f85e)
+![mufrodat](https://github.com/user-attachments/assets/1cb86a4a-1f66-4b9e-a1b0-2212e21753d8)
+
 
 ---
 
 # Pembagian Jadwal Talaqqi
 
-![image](https://gist.github.com/user-attachments/assets/0818e84a-d52c-45e1-9a3b-e7b396f1f7b5)
+![nama](https://github.com/user-attachments/assets/2e94a5aa-3ee8-4d67-8043-a9fb43361481)
+
 
 ---
 
